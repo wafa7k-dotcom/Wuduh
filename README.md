@@ -1,4 +1,3 @@
-# Wuduh
 
 # وضوح | Wuduh
 
